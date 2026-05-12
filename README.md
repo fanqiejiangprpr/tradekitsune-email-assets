@@ -1,0 +1,1 @@
+# tradekitsune-email-assets
